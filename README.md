@@ -1,1 +1,0 @@
-# 9vnotpeople.github.io
